@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on ...N/A
 - 🤔 I’m looking for help with ...N/A
 - 💬 Ask me about ...DaemonOS
-- 📫 How to reach me: ...admin@aricspellman.com
+- 📫 How to reach me: ...connect@aricspellman.com
 - 😄 Pronouns: ...N/A
 - ⚡ Fun fact: ...I'm new.
